@@ -1,0 +1,147 @@
+# Best progressive house (by ?)
+
+Progressive house is (more) sophisticated version of house music, that first appeared at the beginning of the 90-ies. First prog. house records started to come out on labels such as Guerilla, Cowboy and Stress. The most important artists at the time were Leftfield and Spooky (production-wise) and Sasha & Digweed (DJ-wise). The latter two started to play at Mansfield based club Renaissance which opened in 1991. They were pushing prog. house sound in it from the beginnings. Everything culminated in 1994, when they released Renaissance - The Mix Collection, the most important prog. house compilation ever. 3-disc set featured some of their favourite tracks, which were being played a lot during their residency at the Renaissance club. But that compilation also indicated the peak of the movement, and also the end of the first prog. house wave.
+After that, the scene was taken by some new names such as BT, Blue Amazon and Way Out West. Their sound was a little different, more epic and trancy. It started to sound very similar to prog. trance, which also appeared at that time. Sometimes, the only difference between them was a BPM (lower-house, higher-trance).
+Old labels started to close down, and some new, important opened up (Jackpot, Yoshitoshi and later Bedrock). Around 1997, Boxed started Global Underground series, which gave a new boost to prog. house and lanched Nick Warren, Dave Seaman and Deep Dish on the forefront of prog. house movement.
+Around 2003, some "new" artists (Holden, Petter, Nathan Fake, The MFA) appeared, who started to develop minimal, techy, idm-influenced prog. house sound. On the other hand, people like Luke Chable and Eelke Kleijn are doing exactly opposite: full and very melodic prog. house. Both sides sound fantastic, so it's not hard to see the bright future for prog. house.
+Ok, that was a little introduction. And here's the list:
+- Leftfield - Song Of Life (Extended Version) (Hard Hands, 1992)
+- Spooky - Little Bullet (High Velocity Mix) (Guerilla, 1993)
+- Way Out West - Ajare (Full Mix) (Deconstruction, 1994)
+- Ready For Dead - Ready For Dead (Limbo, 1993)
+- Blue Amazon - Four Seasons (Jackpot, 1995)
+- Atlas - Compass Error (North) (Pandephonium, 1993)
+- Solar Plexus - Solar Plexus (Entity, 1992)
+- Rui Da Silva - Touch Me (Original Mix) (Kismet, 2000)
+- William Orbit - Water From A Vine Leaf (Xylem Flow Mix) (Guerilla, 1993)
+- Bedrock - For What You Dream Of (Full On Renaissance Mix) (Stress, 1993)
+- Secret Life - She Holds The Key (H.A.L.F. I'm Believer Mix) (Pulse-8, 1994)
+- Apollo 440 - Liquid Cool (Deep Forest Ice Cold @ The Equator Mix) (Stealth Sonic, 1994)
+- Horse - Careful (Sasha/Brothers In Rhythm Mix) (Stress, 1997)
+- Well Hung Parliament - We Can Be (S1000 Mix) (Cowboy, 1992)
+- Leftfield - Open Up (Full Vocal Mix) (Hard Hands, 1993)
+- BT - Loving You More (BT's Primordial Sound 12'' Vocal) (Perfecto, 1995)
+- Supereal - Body Medusa (The Leftfield Mix) (Guerilla, 1991)
+- My Friend Sam - It's My Pleasure (Club Mix) (Network, 1992)
+- Underworld - Dark Train (Junior Boy's Own, 1994)
+- Voices Of 6th Avenue - Call Him Up (Slam Mix) (Stress, 1992)
+- Leftfield - Release The Pressure (The Vocal Mix) (Hard Hands, 1992)
+- Quivver - Twist & Shout (Original Vocal Mix) [1994]
+- Eagles Prey - Tonto's Drum (Darren Emerson Remix) [1992]
+- Sasha - Ohmna [1996]
+- Fuzzy Logic - Obsession (The Quantum Loop Mix) [1992]
+- Deep Piece - Bup Bup Biri Biri (Gypsy Mix) [1992]
+- Leftfield - Afro Left [1995]
+- Havana - Ethnic Prayer (Euro Mix) [1992]
+- Junkie XL - Breezer [2002]
+- Sunscreem - Perfect Motion (Boys Own Mix) [1992]
+- Gypsy - I Trance You [1992]
+- Gabriel & Dresden - Arcadia (G & D Swing To Chunk Remix) [2005]
+- Drum Club - Sound System (Underworld Mix) [1993]
+- Kate Bush vs. Infusion - Running Up That Hill [2003]
+- Quivver - Saxy Lady (Part 1) [1994]
+- Petter - These Days (Chable's 'Those Days' Remix) [2005]
+- Uncle Bob - Uncle Bob's Burly House (Bob's Original Scratch Mix) [1992]
+- Lemon Interupt - Dirty [1992]
+- PQM - You Are Sleeping (PQM Meets Luke Chable Vocal Pass) [2003]
+- Sasha - Arkham Asylum [1996]
+- Perasma - Swing 2 Harmony (Original) [2004]
+- Grace - Not Over Yet (BT's Spirit Of Grace) [1995]
+- Spooky - Schmoo [1993]
+- Soundscape - Do They Mean Us? (Original) [1992]
+- Avus - Real (Nathan Fake Remix) [2004]
+- Holden & Thompson - Nothing (93 Returning Mix) [2003]
+- Bedrock - Santiago (Bedrock's La Coruna Mix) [2005]
+- Way Out West - Killa [2004]
+- Nathan Fake - Outhouse (Main Mix) [2003]
+- Luzon - The Baguio Track (Bedrock Remix) [2001]
+- The MFA - Motherload [2004]
+- React 2 Rhythm - Intoxication (Clubfield Mix) [1991]
+- PKA - Let Me Hear You Say Yeah (Phil Kelsey's '93 Remix) [1993]
+- Blue Amazon - The Runner [1995]
+- Brothers Love Dubs - The Mighty Ming! (Brothers In Rhythm Club Mix) [1992]
+- Holden - A Break In The Clouds (Main Mix) [2003]
+- Sublime - Sublime (Dub) [1992]
+- Blue Amazon - Never Forget [1997]
+- Sasha - Belfunk [1999]
+- Late Night Alumni - Empty Streets (Haji & Emanuel Remix) [2005]
+- The Aloof - On A Mission (Stanley Mix) [1992]
+- Sasha & Maria - Be As One (12'' Mix) [1996]
+- Chable & Bonnici - Ride (Mashtronic Remix) [2004]
+- Dominion - The Gate (Original Mix) [1996]
+- BCML - Mr Horowitz [2005]
+- Boomshanka - Do You Have The Power? (This Side Mix) [1993]
+- React 2 Rhythm - I Know You Like It (Scenes From A Fractal Blotter Mix) [1992]
+- Sasha & Emerson - Scorchio (Full Length Version) [2000]
+- Last Rhythm - Last Rhythm (Sure Is Pure Mix) [1992]
+- Blue Amazon - Searching [1997]
+- Horse - Celebrate (Fluke's Magimix) [1993]
+- James Holden - I Have Put Out The Light [2002]
+- All Boxed In - ...Happen (Tolley's Stressed Mix) [1993]
+- Sasha - Higher Ground (Big Brother's Mix) [1994]
+- Taiko - Echo Drop (Echo Drop Hard) [1994]
+- Deep Dish - Say Hello (Club Mix) [2005]
+- Blue Amazon - No Other Love [1996]
+- Hysterix - Talk To Me (Sasha's Full Music Mix) [1993]
+- Fluke - Slid (PDF Mix) [1993]
+- Eelke Kleijn - 8 Bit Era [2006]
+- Lemon Interupt - Eclipse [1992]
+- X-Press 2 - Lazy (Original) [2002]
+- Shiloh - Dream On (Luke Chable Remix) [2006]
+- Dope On Plastic - Wave Dub [1994]
+- Faith Department - Initiation (Full Circle Mix) [1992]
+- Spooky - Land Of Oz (Poppyfield Mix) [1992]
+- Moonchild - V.O.A.T. (Original Mix) [1994]
+- Balouga Boys - Iceni (Remix) [1992]
+- Lemon Interupt - Big Mouth [1992]
+- Spooky - Don't Panic (Weird + Spooky Mix) [1992]
+- Deja Vu - Never Knew The Devil (Kazoo Mix) [1993]
+- AFK - Eclipse (Steve May's Total Lunar Remix) [2006]
+- Gill Norris - Forme (Original Mix) [2004]
+- D.O.P. - Oh Yeah [1992]
+- Holden & Thompson - Come To Me (Last Version) [2005]
+- Billie Ray Martin & Spooky - Persuasion (Chameleon Mix) [1993]
+- The Wavecatcher - Motivation [1995]
+- Starecase - Vapour Trails (Original) [2006]
+- Two Shiny Heads - Let Go (Turn 'N' Burn Mix) [1992]
+- BT - Poseidon [1994]
+- Petter - All Together [2004]
+- Seal - I'm Alive (Sasha & BT's Atraxion Futures Mix) [1995]
+- D.O.P. - Groovy Beat (Rock-It Mix) [1992]
+- Science Department - Persuasion [2000]
+- Blue Amazon - The Javelin [1997]
+- Serotonin - Pleasure Boy (Full Circle Mix) [1992]
+- Art Of Silence - West 4 (Sander's Vision Mix) [1994]
+- Sasha - Magic (John Digweed's 3D Mix) [1994]
+- Luke Fair - Generations [2005]
+- Smells Like Heaven - Londres Strutt (Original Mix) [1993]
+- Stoneproof - Everything's Not You (Quivver's Space Mix) [1999]
+- Supereal - United State Of Love (The Slam Remix) [1992]
+- BT - Nocturnal Transmission [1994]
+- Way Out West - The Fall [2001]
+- The PQM Project - Aenema (Original Mix) [2004]
+- Nathan Fake - Bored Of House [2004]
+- Mozaic - Sing It (The Hallelujah Song) (Quivvers Dirty Dub) [1995]
+- Minimal Man - Outside The Window (Tracks 1232) [1993]
+- Smells Like Heaven - Rhythm De Londres [1992]
+- Supereal - One Nation (Unity Mix) [1993]
+- Luke Fair - Digital [2004]
+- James Holden - Lump [2006]
+- PQM - The Flying Song (PQM's Deephead Remix) [2000]
+- Charas - Lunar Musique (Full Moon Mix) [1992]
+- Jase From Outta Space - Do What You Want (Infusion Remix) [2004]
+- Sono Lakota - Ice & Acid (Remix) [1993]
+- Quest - The Shepherd (Original Mix) [2004]
+- S1000 - Flatliners (Desirable Dub Mix) [1992]
+- Jo Bogaert - Water (Spooky's Hydro Electric Mix) [1994]
+- Jaco - Show Some Love (Original Dub) [1992]
+- James Holden - 10101 [2005]
+- Petter - Twist Moet [2003]
+- Code MD - Higher (Funk A Duck Mix) [1992]
+- Luke Fair - 34K [2005]
+- Boomshanka - Do What You Wanna Do (Snake Dub) [1992]
+- Luke Fair - Lokitas [2005]
+- Brothers Flow - Not The Way (Original Mix) [1996]
+- Virtualmismo - Mismoplastico (Original Remix) [1993]
+- Jacob Todd - Somehow (Drifting 4/4 Mix) [2005]
+- Creative Thieves - Nasty Rhythm (Sasha's M.F.I. Mix) [1991]
